@@ -32,4 +32,3 @@ Apple stock showed strong upward momentum during the selected period with stable
 
 ---
 
-⭐ If you like this project, consider giving it a star!
